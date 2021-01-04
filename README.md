@@ -1,1 +1,1 @@
-# cv
+neden bunu alıyo
